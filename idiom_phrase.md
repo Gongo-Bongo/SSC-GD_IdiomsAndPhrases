@@ -1,6 +1,6 @@
 Here's a list of **previous year SSC GD exam idioms and phrases** along with some explanations. I've also added predictions for possible idioms that might appear in the next exams.
 
-### Previous Year SSC GD Exam Idioms & Phrases
+### **Previous Year SSC GD Exam Idioms & Phrases**
 
 1. **Apple of one’s eye**  
    - Meaning: Someone very precious or dear.
@@ -77,9 +77,15 @@ Here's a list of **previous year SSC GD exam idioms and phrases** along with som
 25. **A blessing in disguise**  
     - Meaning: Something bad that turns out to be good later on.
 
+26. **puts others out of countenance**
+    - Meaning: To make one uncomfortable
+
+27. **sailing others down the river**
+    - Meaning: To betray someone
+
 ---
 
-### Predicted Idioms & Phrases for Next Exams
+### **Predicted Idioms & Phrases for Next Exams**
 
 Based on patterns from previous years, the SSC GD exams tend to include idioms that are commonly used in everyday conversations and have metaphorical meanings. Here are some idioms and phrases that may appear in upcoming exams:
 
@@ -130,7 +136,7 @@ Based on patterns from previous years, the SSC GD exams tend to include idioms t
 
 ---
 
-### Suggestions for Exam Preparation
+### **Suggestions for Exam Preparation**
 
 - **Focus on everyday idioms:** The SSC GD exam tends to favor idioms and phrases that are common in day-to-day conversation. Stick to practical and commonly used expressions.
 
