@@ -83,6 +83,15 @@ Here's a list of **previous year SSC GD exam idioms and phrases** along with som
 27. **sailing others down the river**
     - Meaning: To betray someone
 
+28. **Hard nut to crack**
+    - Meaning: A difficult problem to solve.
+
+29. **See eye to eye**
+    - Meaning: Be in full agreement.
+
+30. **Hustle and Bustle**
+    - Meaning: Hurry
+
 ---
 
 ### **Predicted Idioms & Phrases for Next Exams**
